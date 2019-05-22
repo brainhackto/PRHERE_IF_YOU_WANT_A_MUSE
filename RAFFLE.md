@@ -1,4 +1,7 @@
-PUT YOUR NAME HERE IF YOU WANNA WIN: 
+PUT YOUR NAME HERE IF YOU WANNA WIN:
+In before the rest of y'all (Chris Hammill)
+
+Ali Khan
 
 Kit Beyer
 
@@ -33,5 +36,3 @@ Derek Howard
 Leon French
 
 Chris Hammill
-
-
