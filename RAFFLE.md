@@ -1,5 +1,7 @@
 PUT YOUR NAME HERE IF YOU WANNA WIN:
 
+George Wang
+
 Jenny Rieck
 
 Ogan
