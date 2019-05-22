@@ -1,9 +1,10 @@
 PUT YOUR NAME HERE IF YOU WANNA WIN:
 
+Jordan DeKraker, UWO
+
 Bcorrigan
 
 Carina Fan
-
 
 George Wang
 
@@ -26,3 +27,4 @@ Derek Howard
 Leon French
 
 Chris Hammill
+
