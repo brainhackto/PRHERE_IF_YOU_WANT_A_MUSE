@@ -1,4 +1,2 @@
 PUT YOUR NAME HERE IF YOU WANNA WIN:
-NAT
-Erin Dickie
-
+George Wang
