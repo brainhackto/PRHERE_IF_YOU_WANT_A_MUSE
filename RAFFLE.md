@@ -1,9 +1,19 @@
 PUT YOUR NAME HERE IF YOU WANNA WIN:
+In before the rest of y'all (Chris Hammill)
+
+Ali Khan
+
+Kit Beyer
+
+Jason Kai
+
+Brian Tan
+
+Jordan DeKraker, UWO
 
 Bcorrigan
 
 Carina Fan
-
 
 George Wang
 
@@ -28,3 +38,14 @@ Leon French
 Chris Hammill
 
 Shreyas Harita
+
+Aras Kayvanrad
+
+Sridevi Venkatesan
+
+Sara Mahallati
+
+Nick Wang
+
+Vasily Grigorovsky
+
